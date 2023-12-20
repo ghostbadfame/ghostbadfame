@@ -9,7 +9,9 @@
 
 - 📫 How to reach me **kapoorshivam77@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ywc306Cxn3ZWQA3e3vN2s_KhRuFM83Ax/view?usp=drive_link](https://drive.google.com/file/d/1ywc306Cxn3ZWQA3e3vN2s_KhRuFM83Ax/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1GWeEgY6WwD7zlydZCoSR_AZipUFort8f/view?usp=sharing)
+
+- Portfolio Website [Link](https://shivam-portfolio-l1y9n3gx1-shivams-projects-dfa31a3e.vercel.app/)
 
 - ⚡ Fun fact **I think I am funny**
 
